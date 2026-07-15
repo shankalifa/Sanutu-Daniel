@@ -16,3 +16,5 @@ Founder Operations Partner helpingbusinesses scale through business systems, SOP
 - Community Operations
 - Member Management
 - Executive Support
+- https://cal.com/sanutudaniel/30min
+site www.corevaagency.org
